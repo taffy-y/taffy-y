@@ -1,19 +1,10 @@
 <div align="center">
-  <img height="300" src="https://files.catbox.moe/t4qhki.png"  />
+  <img height="300" src="https://64.media.tumblr.com/0b0ffb48d907fb602570002789d51008/88d5389494fcc13a-01/s2048x3072/9f376116ff21edd766a6731b768145c72582ce18.pnj"  />
 </div>
 
 <p align="center">
-$\textcolor{#d8d1a8}{𝗧𝗮𝗳𝗳𝘆} \ \textcolor{#d8d1a8}{𝗼𝗿} \ \textcolor{#d8d1a8}{𝗞𝗮𝘇} \ \textcolor{#d8d1a8}{!}$
+$\textcolor{white}{𝗧𝗮𝗳𝗳𝘆} \ \textcolor{white}{𝗼𝗿} \ \textcolor{white}{𝗞𝗮𝘇} \ \textcolor{white}{!}$
 </p>
 <p align="center">
-$\textcolor{#d8d1a8}{𝘁𝗵𝗲𝘆} \textcolor{#d8d1a8}{/}  \textcolor{#d8d1a8}{𝗵𝗲}   \textcolor{#d8d1a8}{/}  \textcolor{#d8d1a8}{𝗶𝘁}　 \textcolor{#d8d1a8}{𝟭𝟰𝘆𝗿𝘀} 　 \textcolor{#d8d1a8}{𝗼𝘀𝗱𝗱𝟭𝗮 + 𝗼𝗰𝗱}$
-</p>
- </p>
-<p align="center">
-$\textcolor{#d8d1a8}{𝘄𝗶𝗽}  　 \textcolor{#d8d1a8}{𝘀𝗶𝗴𝗵𝘀}$
-</p>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎‎ ‎ 
- ‎ ‎ ‎ ‎ ‎ 
- ‎  </p>
-<p align="center">
-ALL of u should TOTALLY read my ruikasa fanfic https://archiveofourown.org/works/63582160
+$\textcolor{white}{𝘁𝗵𝗲𝘆} \textcolor{white}{/}  \textcolor{white}{𝗵𝗲}   \textcolor{white}{/}  \textcolor{white}{𝗶𝘁}　 \textcolor{white}{𝟭𝟰𝘆𝗿𝘀} 　 \textcolor{white}{𝗼𝘀𝗱𝗱𝟭𝗮 + 𝗼𝗰𝗱}$
 </p>‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎‎
